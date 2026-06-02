@@ -1,0 +1,1 @@
+# scanner-siber-g-venlik
